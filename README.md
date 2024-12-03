@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @birbh
-- 👀 I’m interested in Singing.
+- 👀 I’m interested in .
 - 🌱 I’m currently learning +2 Science faculty
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
